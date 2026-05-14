@@ -1,4 +1,4 @@
-# 
+# Get the ultimate breakout trading bot with new breakout trading bot Module | sentiment-analysis + scalping-strategies. Featuring sentiment-analysis and scalping-strategies, it's
 
 
 
